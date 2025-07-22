@@ -66,5 +66,4 @@ Cursor AI is **built for productivity**. With native GPT-4 support, seamless int
 
 ## 🔍 SEO Keywords
 
-cursor, cursor software, cursor 2, cursor online ,cursor for free, cloud cursor, cursor site, cursor browser, cursor website, cursor download for windows, cursor free, cursor ai, cursor code editor, cursor ai code editor download, cursor ai code editor download for windows
-
+cursor, cursor download,  cursor free, cursor ai download, cursor software, cursor 2, cursor online ,cursor for free, cloud cursor, cursor site, cursor browser, cursor website, cursor download for windows, cursor free, cursor ai, cursor code editor, cursor ai code editor download, cursor ai code editor download for windows
